@@ -1,1 +1,1 @@
-# InterpersonalCommunicationProject
+# Interpersonal Communication Project
